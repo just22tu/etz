@@ -1,3 +1,7 @@
+[【教学运行】(点击查看更多)](https://jwc.cuit.edu.cn/tzgg/jxyx.htm)
+
+[2024年下半年中小学教师资格考试（笔试）成都信息工程大学考点考前公告 (2024/09/13)](https://jwc.cuit.edu.cn/info/1174/3018.htm)
+
 
 
 
