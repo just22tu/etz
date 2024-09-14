@@ -1,4 +1,9 @@
 [【教学运行】](https://jwc.cuit.edu.cn/tzgg/jxyx.htm)
+[2024-2025学年第一学期自习教室开放通知（航空港校区） (2024/09/14)](https://jwc.cuit.edu.cn/info/1172/3021.htm)
+
+
+
+[【教学运行】](https://jwc.cuit.edu.cn/tzgg/jxyx.htm)
 [关于办理2024-2025学年第一学期免修手续的通知 (2024/09/14)](https://jwc.cuit.edu.cn/info/1172/3020.htm)
 
 
